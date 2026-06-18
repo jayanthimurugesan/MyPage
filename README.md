@@ -1,2 +1,2 @@
 # Jayanthi Murugesan
-## An IT Man
+## An IT Human
